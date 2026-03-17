@@ -9,8 +9,6 @@
  **<a href="https://Kv3rz.atabook.org/" target="_blank">atabook</a>**⠀⠀**<a href="https://kv3rz.straw.page/"
 target="_blank">info</a>**⠀⠀**<a href="https://kv3rzzz.straw.page/" target="_blank">my art page</a>**
 
-(in progress)
-
 
  ![Profile Views](https://komarev.com/ghpvc/?username=KV1RZZ)
 
