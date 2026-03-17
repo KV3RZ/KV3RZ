@@ -7,7 +7,7 @@
  ![5267258724458370250](https://github.com/user-attachments/assets/1d4aa41f-4cd3-4b17-be1c-e48551781f5d)
 
  **<a href="https://Kv3rz.atabook.org/" target="_blank">atabook</a>**⠀⠀**<a href="https://kv3rz.straw.page/"
-target="_blank">info</a>**⠀⠀**my art page**
+target="_blank">info</a>**⠀⠀**<a href="https://kv3rzzz.straw.page/" target="_blank">my art page</a>**
 
 (in progress)
 
