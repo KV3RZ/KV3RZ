@@ -7,9 +7,9 @@
 
 <img width="828" height="690" alt="Untitled238_20260328124702" src="https://github.com/user-attachments/assets/f6976578-077a-4e6d-b603-d8ab42129b91" />
 
- **<a href="https://Kv3rz.atabook.org/" target="_blank">atabook</a>**⠀⠀**<a href="https://kv3rz.straw.page/"
+ **<a href="https://Kv3rz.atabook.org/" target="_blank">atabook</a>**⠀⠀**<a href="https://t.me/KV3RZZZ"
+target="_blank">info</a>**⠀⠀**<a href="https://kv3rz.straw.page/"
 target="_blank">strawpage</a>**
-
 
  ![Profile Views](https://komarev.com/ghpvc/?username=KV1RZZ)
 
