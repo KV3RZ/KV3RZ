@@ -9,7 +9,8 @@
 
  **<a href="https://Kv3rz.atabook.org/" target="_blank">atabook</a>**⠀⠀**<a href="https://t.me/KV3RZ"
 target="_blank">telegram</a>**⠀⠀**<a href="https://kv3rz.straw.page/"
-target="_blank">strawpage</a>**
+target="_blank">strawpage</a>**⠀⠀**<a href="https://t.me/KV3RZINFO"
+target="_blank">info</a>**
 
  ![Profile Views](https://komarev.com/ghpvc/?username=KV1RZZ)
 
