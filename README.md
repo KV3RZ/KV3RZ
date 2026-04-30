@@ -7,9 +7,19 @@
 
 <img width="828" height="690" alt="Untitled238_20260328124702" src="https://github.com/user-attachments/assets/f6976578-077a-4e6d-b603-d8ab42129b91" />
 
- **<a href="https://Kv3rz.atabook.org/" target="_blank">atabook</a>**⠀⠀**<a href="https://t.me/KV3RZ"
-target="_blank">telegram</a>**⠀⠀**<a href="https://kv3rz.straw.page/"
-target="_blank">strawpage</a>**⠀⠀**<a href="https://t.me/KV3RZINFO"
+<div align="center">
+ 
+**for American users:**
+
+**<a href="https://Kv3rz.atabook.org/" target="_blank">atabook</a>**⠀⠀**<a href="https://kv3rz.straw.page/"
+target="_blank">strawpage</a>**
+
+<div align="center">
+ 
+**for Russian users:**
+
+**<a href="https://t.me/KV3RZ"
+target="_blank">telegram</a>**⠀⠀**<a href="https://t.me/KV3RZINFO"
 target="_blank">info</a>**
 
  ![Profile Views](https://komarev.com/ghpvc/?username=KV1RZZ)
