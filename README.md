@@ -13,7 +13,7 @@
  
 **for American users:**
 
-**<a href="https://Kv3rz.atabook.org/" target="_blank">atabook</a>**
+**<a href="https://Kv3rz.atabook.org/" target="_blank">atabook</a>**⠀⠀**<a href="https://kv3rzz.straw.page/" target="_blank">strawpage</a>** 
 
 <div align="center">
  
