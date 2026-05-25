@@ -20,8 +20,7 @@
 **for Russian users:**
 
 **<a href="https://t.me/KV3RZ"
-target="_blank">telegram</a>**⠀⠀**<a href="https://t.me/KV3RZINFO"
-target="_blank">info</a>**
+target="_blank">telegram</a>**
 
  ![Profile Views](https://komarev.com/ghpvc/?username=KV1RZZ)
 
