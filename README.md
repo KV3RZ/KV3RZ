@@ -19,8 +19,8 @@
  
 **for Russian users:**
 
-**<a href="https://t.me/KV3RZ"
-target="_blank">telegram</a>**⠀⠀**<a href="https://t.me/KV3RZINFO"
+**<a href="https://t.me/Iightyagam1"
+target="_blank">telegram</a>**⠀⠀**<a href="https://t.me/unpleasantthingss"
 target="_blank">info</a>**
 
  ![Profile Views](https://komarev.com/ghpvc/?username=KV1RZZ)
