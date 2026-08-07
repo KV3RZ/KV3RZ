@@ -14,5 +14,6 @@ If you think about it, the world would be much better off without some people.
 
 <a href="https://t.me/unpleasantthingss"><img src="https://github.com/user-attachments/assets/2ace61b8-04c6-4686-804d-5c91bdf6f5dc" width="160">
 
-<a href="https://t.me/Iightyagam1"><img src="Untitled625_20260808015646" src="https://github.com/user-attachments/assets/3d6566c2-5de6-4d7b-acf1-d3cf1896170d" width="160">
+<a href="https://t.me/Iightyagam1"><img src="https://github.com/user-attachments/assets/9e363164-0243-4748-90e6-1f8c77f44f04" width="160">
+
 
