@@ -12,7 +12,7 @@ If you think about it, the world would be much better off without some people.
 
 <a href="https://kv3rz.straw.page/"><img src="https://github.com/user-attachments/assets/50c12d32-bbe5-483b-a3d8-26ab79447b04" width="160">
 
-<a href="https://kv3rz.atabook.org"><img src="https://github.com/user-attachments/assets/2ace61b8-04c6-4686-804d-5c91bdf6f5dc" width="160">
+<a href="https://t.me/unpleasantthingss"><img src="https://github.com/user-attachments/assets/2ace61b8-04c6-4686-804d-5c91bdf6f5dc" width="160">
 
-<a href="https://kv3rz.atabook.org"><img src="Untitled625_20260808015646" src="https://github.com/user-attachments/assets/3d6566c2-5de6-4d7b-acf1-d3cf1896170d" width="160">
+<a href="https://t.me/Iightyagam1"><img src="Untitled625_20260808015646" src="https://github.com/user-attachments/assets/3d6566c2-5de6-4d7b-acf1-d3cf1896170d" width="160">
 
