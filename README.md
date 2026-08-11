@@ -8,12 +8,6 @@ If you think about it, the world would be much better off without some people.
 
 <div align="center">
 
-<a href="https://kv3rz.atabook.org"><img src="https://github.com/user-attachments/assets/dc83adf2-036f-4b5b-9577-cde1afe38017" width="160">
-
-<a href="https://kv3rz.straw.page/"><img src="https://github.com/user-attachments/assets/50c12d32-bbe5-483b-a3d8-26ab79447b04" width="160">
-
-<a href="https://t.me/unpleasantthingss"><img src="https://github.com/user-attachments/assets/2ace61b8-04c6-4686-804d-5c91bdf6f5dc" width="160">
-
-<a href="https://t.me/Iightyagam1"><img src="https://github.com/user-attachments/assets/9e363164-0243-4748-90e6-1f8c77f44f04" width="160">
+<a href="https://t.me/unpleasantthingss"><img src="https://github.com/user-attachments/assets/2ace61b8-04c6-4686-804d-5c91bdf6f5dc" width="160"> <a href="https://t.me/Iightyagam1"><img src="https://github.com/user-attachments/assets/9e363164-0243-4748-90e6-1f8c77f44f04" width="160">
 
 
