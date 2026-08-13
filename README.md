@@ -10,4 +10,6 @@ If you think about it, the world would be much better off without some people.
 
 <a href="https://t.me/unpleasantthingss"><img src="https://github.com/user-attachments/assets/2ace61b8-04c6-4686-804d-5c91bdf6f5dc" width="160"> <a href="https://t.me/Iightyagam1"><img src="https://github.com/user-attachments/assets/9e363164-0243-4748-90e6-1f8c77f44f04" width="160">
 
+<div align="center">
 
+README.md не предусмотрен для просмотров с телефона. извините за неудобства
