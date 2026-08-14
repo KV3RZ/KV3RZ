@@ -12,6 +12,6 @@ If you think about it, the world would be much better off without some people.
 
 <div align="center">
 
-README.md не предусмотрен для просмотров с с устройств поставленных на темную тему. 
+README.md не предусмотрен для просмотров с устройств поставленных на темную тему. 
 
 
